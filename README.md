@@ -1,6 +1,6 @@
 Tech Leader
 M Karunakar Raju
-Raju Rani Rani
+Raju Rani Rani Raju
 
 ### About
 
